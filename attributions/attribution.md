@@ -3,3 +3,4 @@ what have you built https://pbs.twimg.com/media/BNELF1GCUAExynU.png
 this is fine dog http://gunshowcomic.com/648
 lucky cat https://media2.giphy.com/media/473Qm2TQg022Y/giphy.gif
 
+subprime tech debt https://twitter.com/markimbriaco/status/501151363011997696
