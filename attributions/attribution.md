@@ -9,3 +9,4 @@ salt lick goats http://memeguy.com/photos/images/mountain-goats-demonstrating-th
 perfect yak Dennis Jarvis https://en.wikipedia.org/wiki/Domestic_yak#/media/File:Bos_grunniens_at_Yundrok_Yumtso_Lake.jpg
 ralphs balloon http://img.memerial.net/page/5014/balloon-wasnt-going-to-come-back.jpg
 sheep fail http://i.huffpost.com/gen/1127006/thumbs/o-SHEEP-BOULDER-570.jpg
+yak herder http://www.indiana.edu/~ctild/gallery/var/resizes/Scenes/Kyrgyzstan/img_0836.jpg
