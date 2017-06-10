@@ -11,3 +11,4 @@ ralphs balloon http://img.memerial.net/page/5014/balloon-wasnt-going-to-come-bac
 sheep fail http://i.huffpost.com/gen/1127006/thumbs/o-SHEEP-BOULDER-570.jpg
 yak herder http://www.indiana.edu/~ctild/gallery/var/resizes/Scenes/Kyrgyzstan/img_0836.jpg
 artisanal winepress https://c1.staticflickr.com/1/624/20204970954_7d79aebb14_b.jpg
+typeset https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Metal_movable_type.jpg/1024px-Metal_movable_type.jpg
